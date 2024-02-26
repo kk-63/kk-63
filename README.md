@@ -1,7 +1,8 @@
 - 👋 Hi, I’m Khaled Kayani, a passionate entrepreneur from Islamabad, Pakistan.
 - 👀 I’m driven by the vision of establishing a company on Wall Street and transforming the financial landscape.
-- 💼 Currently, I'm offering investment opportunities in real estate and crypto trading, with the potential to achieve a risk-adjusted ROI of up to 100% within 1-2 years.
 - 💞️ I’m enthusiastic about collaborating on innovative financial projects and ventures that disrupt the industry.
+- 💼 Currently, I'm offering investment opportunities in real estate and crypto trading, with the potential to achieve a risk-adjusted ROI of up to 100% within 1-2 years.
+- 👔 I am open to work and looking for a life-changing opportunity. See my profile at https://www.linkedin.com/in/lavishlands/
 - 📫 You can reach me via WhatsApp at +923365591277 or email me at khaledkayani@gmail.com.
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: Outside of business, I enjoy bodybuilding, swimming, playing cricket and basketball, and indulging in Hollywood movies.
